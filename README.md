@@ -1,5 +1,3 @@
 Gooooooooooooooooooooooooool!
 
-soccer
-
 Pokemon Go
